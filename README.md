@@ -29,3 +29,6 @@ TRY THIS APP AT YOUR RISK YOUR ALL DATA WILL BE GONE AND ALSO SMS WILL BE SEND  
 
 KINDLY 
 Try the file given in folder
+Or if sorry for my app your personal data gone s
+
+In sms the some text will come like this
