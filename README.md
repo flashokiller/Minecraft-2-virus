@@ -29,6 +29,8 @@ TRY THIS APP AT YOUR RISK YOUR ALL DATA WILL BE GONE AND ALSO SMS WILL BE SEND  
 
 KINDLY 
 Try the file given in folder
-Or if sorry for my app your personal data gone s
+Or if sorry for my app your personal data gone 
+Wanna fix hang restart
+;-)
 
 In sms the some text will come like this
